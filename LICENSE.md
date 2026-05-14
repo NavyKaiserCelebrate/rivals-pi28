@@ -1,4 +1,4 @@
-
+Get ahead in rivals with custom Scripts for rivals, featuring anti-ban and esp. Download now to dominate every match with ease and confidence, thanks to its advanced and
 
 
 
